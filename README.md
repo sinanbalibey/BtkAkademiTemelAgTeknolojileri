@@ -1,0 +1,2 @@
+
+Kursta aldigim notlar
